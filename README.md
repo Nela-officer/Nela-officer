@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nela-officer,
 - 🌱 I’m currently learning Cybersecurity course to get the google certified in just a few months. 
-- 😃 I’m looking to collaborate combining my strong and solid professional experience in technology, processes, systems and the knowledge of cybersecurity to keep the digital environment of a any organization safe guaranteeing business continuity but also I hope to learn more cybersecurity from other colleagues in GitHub. 
+- 😃 I’m looking to collaborate combining my strong and solid professional experience in technology, processes, systems and the knowledge of cybersecurity to keep the digital environment of a any organization safe guaranteeing business continuity. I also hope to learn more about cybersecurity from other colleagues in GitHub. 
 - 📧 You can reach me by my email address garcibme@gmail.com
-- 🫡 Looking to have a good experience in GiHub  with all of you 
+- 🫡 Looking to have a good experience in GitHub  with all of you 
